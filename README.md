@@ -10,6 +10,8 @@ Kim Seo-wan (Daily Dose Of Sunshine)
 
 Hunter Sylvester (Metal Lords)
 
+Kevin Schlieb (Metal Lords)
+
 Emily Spector (Metal Lords)
 
 Dee (Metal Family)
